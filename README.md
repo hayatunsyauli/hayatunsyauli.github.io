@@ -1,1 +1,0 @@
-# hayatunsyauli.github.io
